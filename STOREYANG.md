@@ -1,22 +1,22 @@
 ## Hi there 👋
 🥇FLASH🔻ONYX💎SERPENT🔴AURORA🔴TEUTONIA🔻GERMANI A🔴RUB Y🔻ITALY🔴EUROPE✅BEST RATE
 
-Discord : RAZADOR > ># Discord : RAZADOR
+Discord : STOREYANG > ># Discord : STOREYANG
 🥇FLASH🔻ONYX💎SERPENT🔴AURORA🔴TEUTONIA🔻GERMANI A🔴RUB Y🔻ITALY🔴EUROPE✅BEST RATE
 
-Discord : RAZADOR > ># Discord : RAZADOR
+Discord : STOREYANG > ># Discord : STOREYANG
 Metin2 Official Won And Yang Sell - Buy Safe Trade FAST DELİVERY
 🥇FLASH🔻ONYX💎SERPENT🔴AURORA🔴TEUTONIA🔻GERMANI A🔴RUB Y🔻ITALY🔴EUROPE✅BEST RATE
 
 ✅SELL ALL GF SERVERS ✅ALWAYS BEST PRICE!✅ SAFE AND FAST DELIVERY✅ MORE FOR DM
 
-Discord : RAZADOR
-Discord : RAZADOR
-Discord : RAZADOR
-Discord : RAZADOR
+Discord : STOREYANG
+Discord : STOREYANG
+Discord : STOREYANG
+Discord : STOREYANG
 ✅PAYMENT METHODS: PAYPAL, CRYPTO , REVOLUT, BANK TRANSFER , VISA , MASTERCARD , SKRILL , All Online Payments Methood>!
 
-DISCORD: RAZADOR
+DISCORD: STOREYANG
 
 SERVER
 AMOUNT
@@ -77,7 +77,7 @@ Online Payment Methood
 🥇FLASH🔻ONYX💎SERPENT🔴AURORA🔴TEUTONIA🔻GERMANI A🔴RUB Y🔻ITALY🔴EUROPE✅BEST RATE
 
 <!--
-**RAZADORM2-create/RAZADORM2-create** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**STOREYANG-create/STOREYANG-create** is a ✨ _special_ ✨ repository because its `STOREYANG` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
